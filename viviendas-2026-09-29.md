@@ -34,12 +34,12 @@ Barrido de hoy: **210 anuncios** de 2ª mano actualizados entre el 25 y el 29/09
 - **Por qué destaca:** la única que junta etiqueta A, planta 6ª, terraza y parking incluido por debajo de 449.000 €.
 
 ## 4. Obra nueva · Barcelona — Sants-Montjuïc (Fira) · *TADAIMA FIRA PARC*
-- **445.000 €** · **106 m²** · planta n/d · 3 hab, 2 baños
+- **445.000 €** · **106 m²** · planta **5ª** (según listado; no consta en el detalle) · 3 hab, 2 baños
 - **Certificado A** (1 kWh/m²·año · 1 kg CO₂/m²·año) · balcón/terraza 5 m² · ascensor
 - Piscina, gimnasio, coworking, sala gourmet, huerto urbano y zona infantil · sin parking incluido
 - Actualizado 22/09/2026
-- https://www.habitaclia.com/i55621000000197.htm
-- **Por qué destaca:** 106 m² de obra nueva con etiqueta A dentro de Barcelona a **4.198 €/m²**; conviene confirmar la planta antes de visitar (no consta en ficha).
+- https://www.habitaclia.com/i54030000000051.htm
+- **Por qué destaca:** 106 m² de obra nueva con etiqueta A dentro de Barcelona a **4.198 €/m²**; conviene confirmar la planta con la promotora (el detalle no la recoge).
 
 ## 5. 2ª mano · Barcelona — El Guinardó (Horta-Guinardó)
 - **435.000 €** · **80 m²** escriturados · **7ª planta** · 3 hab, 1 baño · año **1989**
